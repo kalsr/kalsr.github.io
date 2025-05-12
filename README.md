@@ -1,0 +1,1 @@
+Kalsnet Technologies is a forward-thinking technology company focused on delivering cutting-edge software solutions and IT consulting services. With over 35 years of experience, we empower organizations with secure, scalable, and future-ready digital frameworks.
